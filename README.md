@@ -8,4 +8,3 @@ https://drive.google.com/file/d/15gsoul0Y6Bvh_RbIRDnYB2Q4fS31RiTg/view?usp=shari
 https://www.figma.com/design/yLbspg6ljAf0Ac3PcxiExn/Roots---Tour-Planning--Community---Copy-?node-id=795-5653&t=g4KR1em4P4bZGxP3-1
 https://drive.google.com/drive/u/0/folders/1ItGdNQkjhf5cIaqHXaErEigScHqKuxZ_
 https://1drv.ms/x/c/46426196ddfbaac3/IQBhrV3BcxybTblukjFOaZNrAc78r32FIACOOl6Smsb5eEA?e=HSnohB
-https://drive.google.com/drive/u/0/folders/1ItGdNQkjhf5cIaqHXaErEigScHqKuxZ_
